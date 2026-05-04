@@ -1,1 +1,1 @@
-# the-digital-nomads-network-linkedin-group
+# The Digital Nomads Network LinkedIn Group
